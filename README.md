@@ -1,9 +1,9 @@
  Pratik navale EDS 
 ✅ Video Demonstration [Watch the video here](https://youtu.be/wSR-F0MWYsM)
 
-✅ CodeTantra Completion Link [View my CodeTantra completion (https://drive.google.com/file/d/1Ex3snAbAikHlWCGAz7RtMfNyzpWSoOvf/view?usp=drivesdk)
+✅ CodeTantra Completion Link [View my CodeTantra completio](https://drive.google.com/file/d/1Ex3snAbAikHlWCGAz7RtMfNyzpWSoOvf/view?usp=drivesdk)
 
-✅ Download Cisco Certificate [Download (https://drive.google.com/drive/folders/1N69k0BVZJqCoC8JyfQMuPexAEJi5thII)
+✅ Download Cisco Certificate [Download](https://drive.google.com/drive/folders/1N69k0BVZJqCoC8JyfQMuPexAEJi5thII)
 
 ✅ Practical 1 [practical 1](https://drive.google.com/file/d/1fdVMBluxC5KK16N3PJ6ZcMcpEHgURYws/view?usp=drivesdk)
 
